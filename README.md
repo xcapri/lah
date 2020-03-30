@@ -1,3 +1,3 @@
 # lah
 
-![image](https://vulnerabledoma.in/bypass/usercontent/icon.jpg.txt)
+![image](https://pastebin.com/raw/GKgezWVp)
